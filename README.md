@@ -17,3 +17,13 @@
 ![alt-текст](http://a.radikal.ru/a31/1801/56/e18198d71ca3.jpg)
 
 [Photo by Liza Tarasova](https://vk.com/poprobuiugadai)
+<table>
+<tr>
+<td>Это ячейка таблицы.</td>
+</tr>
+</table>
+<table>
+<tr>
+<td>Это ячейка таблицы.</td>
+</tr>
+</table>
