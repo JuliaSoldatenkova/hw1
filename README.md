@@ -15,4 +15,3 @@
 
 ![alt-текст](http://a.radikal.ru/a16/1801/8a/e1f4647f9347.jpg)
 ![alt-текст](http://c.radikal.ru/c08/1801/98/9b0ca13345ac.jpg)
-![alt-текст](http://c.radikal.ru/c26/1801/16/c452c140a181.jpg)
