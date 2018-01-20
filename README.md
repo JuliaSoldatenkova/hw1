@@ -14,9 +14,7 @@
 * Я играю на гитаре и даже пытаюсь немного петь
 * Французский язык я начинала учить 3 раза
 ***
-![](http://c.radikal.ru/c35/1801/c3/ade7703e1ad4.jpg)
-![](http://b.radikal.ru/b20/1801/aa/bd0d71730132.jpg)
-![](http://a.radikal.ru/a26/1801/48/2363cdb295cd.jpg)
+![](http://c.radikal.ru/c35/1801/c3/ade7703e1ad4.jpg)    ![](http://b.radikal.ru/b20/1801/aa/bd0d71730132.jpg)    ![](http://a.radikal.ru/a26/1801/48/2363cdb295cd.jpg)
 
 [Photo by Liza Tarasova](https://vk.com/poprobuiugadai)
 ***
