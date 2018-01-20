@@ -20,6 +20,9 @@
 ***
 ## Социальные сети
 [VK](https://vk.com/ju_julia_ss) 
+
+![alt-текст](http://c.radikal.ru/c05/1801/15/86997d30bd0a.png)
+
 ## Расписание на понедельник
 <table>
 <tr>
