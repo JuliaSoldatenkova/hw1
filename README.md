@@ -18,10 +18,12 @@
 
 [Photo by Liza Tarasova](https://vk.com/poprobuiugadai)
 ***
+## Социальные сети
+
 ## Расписание на понедельник
 <table>
 <tr>
-<td>Время</td>
+<td>**Время**</td>
 <td>Предмет</td>
 <td>Аудитория</td>
 <td>Корпус</td>
