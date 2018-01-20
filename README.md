@@ -13,15 +13,15 @@
 * Зарубежная классическая литература мне нравится больше, чем отечественная.
 * Я играю на гитаре и даже пытаюсь немного петь
 ***
-![alt-текст](http://a.radikal.ru/a16/1801/8a/e1f4647f9347.jpg)
-![alt-текст](http://a.radikal.ru/a31/1801/56/e18198d71ca3.jpg)
+![](http://a.radikal.ru/a16/1801/8a/e1f4647f9347.jpg)
+![](http://a.radikal.ru/a31/1801/56/e18198d71ca3.jpg)
 
 [Photo by Liza Tarasova](https://vk.com/poprobuiugadai)
 ***
 ## Социальные сети
-[VK](https://vk.com/ju_julia_ss) 
+![](http://d.radikal.ru/d05/1801/88/febceacfe9eb.png) [VK](https://vk.com/ju_julia_ss) 
 
-![alt-текст](http://c.radikal.ru/c05/1801/15/86997d30bd0a.png)
+![](http://d.radikal.ru/d09/1801/3e/83058fd8c670.jpg) [Instagram] (https://www.instagram.com/juliashaa/?hl=ru)
 
 ## Расписание на понедельник
 <table>
