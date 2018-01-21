@@ -18,7 +18,7 @@
 ![](http://b.radikal.ru/b20/1801/aa/bd0d71730132.jpg)
 ![](http://a.radikal.ru/a26/1801/48/2363cdb295cd.jpg)
 
-[Photo by Liza Tarasova](https://vk.com/poprobuiugadai)
+[_by Liza Tarasova_](https://vk.com/poprobuiugadai)
 ***
 ## Социальные сети
 ![](http://d.radikal.ru/d05/1801/88/febceacfe9eb.png) [VK](https://vk.com/ju_julia_ss) 
