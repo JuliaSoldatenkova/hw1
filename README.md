@@ -23,7 +23,7 @@
 ## Социальные сети
 ![](http://d.radikal.ru/d05/1801/88/febceacfe9eb.png) [VK](https://vk.com/ju_julia_ss) 
 
-![](http://d.radikal.ru/d09/1801/3e/83058fd8c670.jpg) [Instagram](https://www.instagram.com/juliashaa/?hl=ru)
+![](http://d.radikal.ru/d09/1801/3e/83058fd8c670.jpg) [Instagram](https://www.instagram.com/juliashaa/?hl=ru "Подписываемся!!!")
 * * *
 ## Расписание
 ##### Понедельник
